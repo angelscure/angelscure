@@ -9,7 +9,7 @@ i love making new friends so dont be scared to int!!
 
 ## stuff i liek:
 
-egl/jfashion, persona 3/4/5, fear & hunger, higurashi+umineko, love live, rpgmaker horror, tloz, yuri, ddlc, +moar
+egl/jfashion, persona 3/4/5, fear & hunger, higurashi+umineko, love live, rpgmaker horror, tloz, yuri, ddlc, all things moe and kawaii
 
 
 ## dni:
