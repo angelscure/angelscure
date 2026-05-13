@@ -1,4 +1,5 @@
 <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/8a10a419-e2ff-45ed-bc3f-54ad96571da2" />
+
 ## hai im marcy
 plz w2i im likely offtab! im usually at bakery or docks ^_^
 i love making new friends so dont be scared to int!!
