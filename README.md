@@ -1,15 +1,26 @@
 <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/8a10a419-e2ff-45ed-bc3f-54ad96571da2" />
 
 ## hai im marcy
+
 plz w2i im likely offtab! im usually at bakery or docks ^_^
+
 i love making new friends so dont be scared to int!!
 
-## stuff i liek
+
+## stuff i liek:
+
 egl/jfashion, persona 3/4/5, fear & hunger, higurashi+umineko, love live, rpgmaker horror, tloz, yuri, ddlc, +moar
 
-## dni
+
+## dni:
+
 under 18, bigoted in any way, creeps
+
 idgaf abt ship discourse but i dont rlly like proshippers
+
+ok bai
+<img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/c6828718-774f-46c3-9a35-15e8121b66fd" />
+
 
 <!--
 **angelscure/angelscure** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
