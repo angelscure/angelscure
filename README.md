@@ -18,6 +18,8 @@ under 18, bigoted in any way, creeps
 
 idgaf abt ship discourse but i dont rlly like proshippers or self proclaimed "problematic" ppl 
 
+srry this looks poop idk how 2 github
+
 ok bai
 <img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/c6828718-774f-46c3-9a35-15e8121b66fd" />
 
